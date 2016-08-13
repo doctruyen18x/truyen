@@ -1,0 +1,2 @@
+# truyen
+Đọc truyện
